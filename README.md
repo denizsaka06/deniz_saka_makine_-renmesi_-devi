@@ -1,0 +1,1 @@
+# deniz_saka_makine_-renmesi_-devi
